@@ -1,0 +1,5 @@
+- 👋 Hi, I’m blazee89
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on bigger projects
+- 📫 How to reach me, Reach me via discord; VenoMastic#4505
